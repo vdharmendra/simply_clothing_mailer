@@ -1,4 +1,5 @@
 # Simply Clothing New Arrival Emailer 
+<a href="https://www.linkedin.com/in/dharmendraverma95/" target="_blank">LinkedIn Profile </a>
 <a href="https://www.behance.net/dhirukumar" target="_blank">Behance Profile </a>
 
 ##To say thank you for signing up, I am offering you a 25% discount on your first purchase.
